@@ -1,0 +1,1 @@
+# A.I. Smart Journal
